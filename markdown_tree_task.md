@@ -18,7 +18,7 @@ At **Treelife**, we're passionate about forest and green living. Our mission is 
 
 **Scientific Name**: *Quercuc robur*
 
-Known for its strengh and logevity, the oak is a symbol of endurance.
+Known for its strengh and longevity, the oak is a symbol of endurance.
 
 ![](https://treenewal.com/wp-content/uploads/2020/11/oak-tree-care.png)
 ---
